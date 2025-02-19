@@ -1,6 +1,6 @@
 Hola 😊
 
-### **`💭 Contáctanos`**
+### **`🍡 Contáctos`**
 
 <details>
 <summary><b> 📝 Contáctos</b></summary>
